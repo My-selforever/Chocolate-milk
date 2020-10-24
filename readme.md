@@ -1,1 +1,1 @@
-My Recipe of making Chocolate Milk frm Bornvita powder
+My Recipe of making Chocolate Milk from Bornvita powder
